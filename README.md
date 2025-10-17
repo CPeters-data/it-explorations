@@ -3,3 +3,8 @@ Customer service skills, ethics in the computer industry, servant leadership, te
 This course is where the student will begin to design and create their program portfolio.
 
 https://www.westerntc.edu/node/23110/academic-programs/it-data-%26-analytics-specialist/courses#
+
+From this IT Exploration class, I gained a clearer understanding of the wide range of career paths within the information technology field and how my personal skills and interests align with them. 
+I learned foundational technical skills about networking, programming, software systems, and cloud computing. 
+I also developed a stronger sense of professional readiness by practicing teamwork, ethical decision-making, time and stress management, and communication skills. 
+Creating an e-portfolio helped me reflect on my strengths, define my professional goals, and begin shaping a plan for continued growth in IT.
